@@ -1,2 +1,1 @@
-# eden is my road of being a ThoughtWorker
-
+# The Eden is the green light leads me to go ahead
